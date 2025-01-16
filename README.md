@@ -9,4 +9,6 @@ Our group we get to see the industry talk video provide by Air Asia. They shared
 This industry talk enhanced my critical thinking and problem-solving skills, especially in areas like airline industry. I found the industry talk 1 particularly enriching as it challenged me to think outside the box.
 
 improvement on Assignment 1
+
 We can ask more problem related to industry.
+Air Asia employee could be sharing resources or platforms for skill-building in areas highlighted during the talk
